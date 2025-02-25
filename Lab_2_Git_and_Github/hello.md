@@ -1,1 +1,1 @@
-Hello, I'm an anonymous bear, and I'm one of the teaching assistants of the course.
+Hello, I'm an Nathan, and I'm one of the student of the course.
